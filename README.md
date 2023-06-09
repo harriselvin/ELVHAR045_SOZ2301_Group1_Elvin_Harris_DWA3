@@ -6,8 +6,8 @@ I've been tasked to answer a few questions in order to successfully complete my 
 
 ### How to access my challenges
 
-- You can head into the DWA folder and download a pdf of my completed challenges. 
-- You can also copy these links below to access my challenges
+💪 You can head into the DWA folder and download a pdf of my completed challenges. 
+🌱 You can also copy these links below to access my challenges
 
 ### Challenges
 
